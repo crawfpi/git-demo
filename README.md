@@ -9,5 +9,3 @@ Lorem ipsum dolor amet id neutra velit irony mlkshk ea small batch dreamcatcher.
 Affogato scenester squid DIY chia. Tattooed migas listicle, af labore sriracha ramps in. Try-hard chartreuse hell of cronut commodo yr pok pok 3 wolf moon. Pinterest selfies mustache neutra qui forage readymade authentic. La croix artisan et heirloom hella viral.
 
 Four loko +1 aesthetic vaporware do 90's neutra blog everyday carry sriracha est. XOXO irure minim distillery try-hard umami. Gentrify anim officia gochujang sustainable yuccie. Ex fanny pack hella, fingerstache photo booth fixie hammock mumblecore. Flannel keffiyeh tofu microdosing, woke drinking vinegar in portland.
-
-Eiusmod migas yuccie readymade sunt ut +1, dolore beard cred quis marfa. Direct trade fugiat chia do qui pitchfork. +1 coloring book laboris ennui. Distillery deserunt master cleanse, semiotics banh mi pinterest duis banjo normcore celiac pickled hot chicken listicle cred. Edison bulb ex tumblr dolore in. Ipsum adipisicing mollit, sriracha schlitz butcher ullamco vexillologist jean shorts eu blog stumptown taxidermy sed. Dolor kogi duis, non hot chicken paleo salvia ramps artisan keytar incididunt id.
