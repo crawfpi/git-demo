@@ -5,3 +5,4 @@ Test git repo
 
 1. README.md
 2. index.hmtl
+3. images/DSC09430.jpg
